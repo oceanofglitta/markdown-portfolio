@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+💙
+1. 아
+2. 러
+3. 하
+4. 
